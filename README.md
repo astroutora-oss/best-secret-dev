@@ -14,3 +14,11 @@ Puedes encontrar más contenido de Python y automatizacion en mis articulos de M
 
 - Medium (Solo contenido en inglés): https://frank-andrade.medium.com/
 - YouTube: https://www.youtube.com/c/AndradeFrank/videos
+
+@chelsiashen => One-time Upwork account (not Asian) broker from Chile
+@Devickk => Verified card broker from Kenya
+
+You have to link Myaza or EPN (https://e.pn/) card to one time Upwork accounts.
+
+- Medium (Solo contenido en inglés): https://frank-andrade.medium.com/
+- YouTube: https://www.youtube.com/c/AndradeFrank/videos
