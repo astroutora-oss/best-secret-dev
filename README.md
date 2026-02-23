@@ -19,6 +19,6 @@ Puedes encontrar más contenido de Python y automatizacion en mis articulos de M
 @Devickk => Verified card broker from Kenya
 @slava_ushakov
 You have to link Myaza or EPN (https://e.pn/) card to one time Upwork accounts.
-
+@goldentrust1916
 - Medium (Solo contenido en inglés): https://frank-andrade.medium.com/
 - YouTube: https://www.youtube.com/c/AndradeFrank/videos
